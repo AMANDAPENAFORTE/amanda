@@ -2,12 +2,12 @@ Olá, eu sou a Amanda Drebes (nanda)
 
 Estudante do Colégio Guilherme de Almeida
 
-Aluna do 1º A do integral 
+Aluna do 2° ano B noturno (2024)
 
-Estudante do componente curricular Pensamento computacional
+Estudante de programação
 
-Liderada pela Prof  FRAN CARLA 
+Liderada pela Prof Aline 
 
-Nascida no dia 10 de maio de 2008
+Nascida no dia 15 de maio de 2008
 
 Do Município de Santa Izabel do Oeste-PR
